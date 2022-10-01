@@ -12,3 +12,4 @@ i'm always trying to grow and learn something new.
 💬 Ask me about ... Anything<br>
 📫 How to reach me: ... [Linkdin] (https://www.linkedin.com/in/iammohsinalaziz/)<br>
 😄 Pronouns: ... He/Him
+⚡ Fun fact: ... i'm in dubai
